@@ -14,3 +14,5 @@ Safnaj
 Gawsan
 Dinusha
 
+Hasala - Thank you for this session.
+
