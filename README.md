@@ -17,3 +17,5 @@ Sachintha
 
 thnx
 
+Hasala - Thank you for this session.
+
